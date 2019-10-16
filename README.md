@@ -34,3 +34,30 @@ Screenshots from some of my apps
 
 ![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20191016-203726.png)
 
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20190811-165725.png)
+
+
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20190811-165731.png)
+
+
+
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20190811-165736.png)
+
+
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/YEAR_1_SUITE_1_4096x4096.png)
+
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20190811-165753.png)
+
+
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20190811-165758.png)
+
+
+![alt text](https://github.com/Tristankluivert/ProjectsSCreenShots/blob/master/Screenshot_20190811-165802.png)
+
+
